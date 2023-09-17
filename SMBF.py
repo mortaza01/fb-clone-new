@@ -1,6 +1,6 @@
-# TERAKHIR UPDATE SMBF
-# SABTU 16-09-2023
-# CYXIEON-XR
+# Mortaza
+# Mortaza 16-09-2023
+# Mortaza
 
 # note ini sc free ya klo udh enak jangan di premiumin
 # note yang udah tau jangan di ubah - ubah  hargai :-)
